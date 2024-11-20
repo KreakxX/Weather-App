@@ -1,1 +1,2 @@
-![WeatherApp](https://github.com/user-attachments/assets/c7e8624b-841f-479b-8000-bd4069761115)
+![WeatherApp (1)](https://github.com/user-attachments/assets/a54e73ab-7916-480e-9137-3bc60673b144)
+
